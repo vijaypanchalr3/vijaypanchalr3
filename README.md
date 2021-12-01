@@ -1,6 +1,6 @@
-# hello, welcome to my life. yes, that right life...
+# hello, welcome to my life. yes, that right LIFE...
 
-Here, i do stuffs as hobby, as helper, and as enthusiast.
+Here, i do stuffs as hobby, as helper and as enthusiast.
 
 
 - 👋 Hi, I’m @vijaypanchalr3
